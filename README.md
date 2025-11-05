@@ -1,2 +1,2 @@
 # about-nikhi
-know nikhitha better!
+know me better!
